@@ -4,7 +4,7 @@
 [One piece Pirate Warriors IV](https://games-database.com/9gz)\
 [Naruto Ninja Storm 4](https://games-database.com/4ry)\
 [Control](https://games-database.com/9eg)\
-[Resident Evil 4](https://games-database.com/6q3)\
+[Resident Evil 4](https://games-database.com/6q3)
 
 
 # Halo SAGA  
@@ -14,7 +14,7 @@
 [Halo: Master Chief Collection {Comprende: Halo: Reach, Halo: Combat Evolved Anniversary, Halo 2: Anniversary, Halo 3, Halo 3: ODST, Halo 4}](https://games-database.com/42r)\
 [Halo Spartan Strike](https://games-database.com/9lz)\
 [Halo Spartan Assault](https://steamunlocked.eu/halo-spartan-assault-free-download/)\
-[Halo Infinite {MISSING}]\\
+[Halo Infinite {MISSING}]
 
 # Dark souls SAGA
 [Demon's souls {MISSING}]\
