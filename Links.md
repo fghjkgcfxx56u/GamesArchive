@@ -21,11 +21,11 @@
 [Dark souls trilogy {MISSING}]\
 [Dark souls Remastered](https://worldofpcgames.co/dark-souls-remastered-free-download-v2/)\
 [Dark souls 2](https://worldofpcgames.co/dark-souls-ii-free-download/)\
-[Dark souls 3](https://worldofpcgames.co/dark-souls-3-the-ringed-city-free-download-apk/)\
+[Dark souls 3](https://worldofpcgames.co/dark-souls-3-the-ringed-city-free-download-apk/)
 
-# Software\
+# Software
 [AutoDesk AutoCAD](https://games-database.com/4c6)\
-[Adobe Photoshop](https://mega.nz/file/aJ1UBBIS#HSd6sDrRtd6iYnc6Pkas3iV6R96ZHFr-vpug6eXKdRY)\
+[Adobe Photoshop](https://mega.nz/file/aJ1UBBIS#HSd6sDrRtd6iYnc6Pkas3iV6R96ZHFr-vpug6eXKdRY)
 
 
 
