@@ -1,13 +1,17 @@
 # Non ordinati
-[One piece World Seeker](https://steamunlocked.net/one-piece-world-seeker-free-download/)\
+
 [The Elder Scrolls V Skyrim](https://games-database.com/4sh)\
-[One piece Pirate Warriors IV](https://games-database.com/9gz)\
-[Naruto Ninja Storm 4](https://games-database.com/4ry)\
 [Control](https://games-database.com/9eg)\
 [Resident Evil 4](https://games-database.com/6q3)
 
 # Anime
 ### Naruto
+[Naruto Ninja Storm 4](https://games-database.com/4ry)\
+[Naruto To Boruto: Shinobi Striker](https://games-database.com/6ws)\
+
+### One piece
+[One piece Pirate Warriors IV](https://games-database.com/9gz)\
+[One piece World Seeker](https://steamunlocked.net/one-piece-world-seeker-free-download/)\
 
 # Halo SAGA  
 [Halo: Combat Evolved](https://gamesnostalgia.com/download/halo-combat-evolved/2908?t=96506455)\
