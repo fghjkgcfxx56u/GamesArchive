@@ -6,6 +6,8 @@
 [Control](https://games-database.com/9eg)\
 [Resident Evil 4](https://games-database.com/6q3)
 
+# Anime
+### Naruto
 
 # Halo SAGA  
 [Halo: Combat Evolved](https://gamesnostalgia.com/download/halo-combat-evolved/2908?t=96506455)\
