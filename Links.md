@@ -5,7 +5,7 @@
 [Resident Evil 4](https://games-database.com/6q3)
 
 # Anime
-##### Naruto
+#### Naruto
 [Naruto Ninja Storm 4](https://games-database.com/4ry)\
 [Naruto To Boruto: Shinobi Striker](https://games-database.com/6ws)\
 
