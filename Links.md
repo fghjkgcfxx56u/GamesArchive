@@ -17,7 +17,7 @@
 [Halo Infinite {MISSING}]
 
 # Dark souls SAGA
-[Demon's souls](https://uptobox.com/33a1elmquzr4)\
+[Demon's souls {Da usare con RPCS3 Emulator}](https://uptobox.com/33a1elmquzr4)\
 [Dark souls trilogy {MISSING}]\
 [Dark souls Remastered](https://worldofpcgames.co/dark-souls-remastered-free-download-v2/)\
 [Dark souls 2](https://worldofpcgames.co/dark-souls-ii-free-download/)\
@@ -25,7 +25,8 @@
 
 # Software
 [AutoDesk AutoCAD](https://games-database.com/4c6)\
-[Adobe Photoshop](https://mega.nz/file/aJ1UBBIS#HSd6sDrRtd6iYnc6Pkas3iV6R96ZHFr-vpug6eXKdRY)
+[Adobe Photoshop](https://mega.nz/file/aJ1UBBIS#HSd6sDrRtd6iYnc6Pkas3iV6R96ZHFr-vpug6eXKdRY)\
+[RPCS3 Emulator {Serve per Demon's souls}](https://rpcs3.net/download) 
 
 
 
