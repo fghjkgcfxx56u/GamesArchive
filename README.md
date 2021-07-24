@@ -24,7 +24,7 @@
 
 # Dark souls SAGA
 [Demon's souls {Da usare con RPCS3 Emulator}](https://uptobox.com/33a1elmquzr4)\
-[Dark souls trilogy {MISSING}]\
+[Dark souls: Prepare to Die Edition {Original}](https://archive.org/download/dark-souls-prepare-to-die-edition-PC/Dark%20Souls%20-%20Prepare%20To%20Die%20Edition.7z)\
 [Dark souls Remastered](https://worldofpcgames.co/dark-souls-remastered-free-download-v2/)\
 [Dark souls 2](https://worldofpcgames.co/dark-souls-ii-free-download/)\
 [Dark souls 3](https://worldofpcgames.co/dark-souls-3-the-ringed-city-free-download-apk/)
