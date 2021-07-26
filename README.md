@@ -32,7 +32,7 @@
 # Software
 [AutoDesk AutoCAD](https://games-database.com/4c6)\
 [Adobe Photoshop](https://mega.nz/file/aJ1UBBIS#HSd6sDrRtd6iYnc6Pkas3iV6R96ZHFr-vpug6eXKdRY)\
-[Adobe Premiere](https://mega.nz/file/ofAmXALQ#hdUeZxcSHpeQImCEKDDSDYvbOqMfqvML_gWOxon-wiM)\
+[Adobe Premiere](magnet:?xt=urn:btih:E440CF3DCAE19C43FC1396B3A5F9208B924BD1D5&dn=Adobe%20Premiere%20Pro%202021%20v15.4.0.47%20%28x64%29%20Multilingual%20%5bFileCR%5d.zip&tr=udp%3a%2f%2ftracker.openbittorrent.com%3a80%2fannounce&tr=udp%3a%2f%2ftracker.opentrackr.org%3a1337%2fannounce&tr=udp%3a%2f%2ftracker.coppersurfer.tk%3a6969%2fannounce&tr=udp%3a%2f%2ftracker.leechers-paradise.org%3a6969%2fannounce&tr=udp%3a%2f%2ftracker.zer0day.to%3a1337%2fannounce&tr=udp%3a%2f%2feddie4.nl%3a6969%2fannounce&tr=udp%3a%2f%2ftracker.open-internet.nl%3a6969%2fannounce&tr=udp%3a%2f%2ftracker.torrent.eu.org%3a451%2fannounce)\
 [RPCS3 Emulator {Serve per Demon's souls}](https://rpcs3.net/download) 
 
 
