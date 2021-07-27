@@ -17,7 +17,7 @@
 [Assassin's Creed: Syndicate](https://games-database.com/72S)\
 [Assassin's Creed: Origins](https://games-database.com/6tv)\
 [Assassin's Creed: Odyssey](https://games-database.com/4lu)\
-[Assassin's Creed: Valhalla](https://games-database.com/7p3)\
+[Assassin's Creed: Valhalla](https://games-database.com/7p3)
 
 # Anime
 #### Naruto
