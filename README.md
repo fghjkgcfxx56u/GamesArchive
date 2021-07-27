@@ -5,7 +5,7 @@
 [Resident Evil 4](https://games-database.com/6q3)
 
 # Assassin's Creed
-[Assassin's Creed {MISSING}]\
+[Assassin's Creed](https://megagames.com/fixes/assassins-creed-1?noradio=1)\
 [Assassin's Creed II](https://games-database.com/4qf)\
 [Assassin's Creed: Brotherhood](https://games-database.com/6qv)\
 [Assassin's Creed: Revelations {MISSING}]\
