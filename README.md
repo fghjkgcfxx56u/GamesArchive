@@ -4,6 +4,21 @@
 [Control](https://games-database.com/9eg)\
 [Resident Evil 4](https://games-database.com/6q3)
 
+# Assassin's Creed
+[Assassin's Creed {MISSING}]\
+[Assassin's Creed II](https://games-database.com/4qf)\
+[Assassin's Creed: Brotherhood](https://games-database.com/6qv)\
+[Assassin's Creed: Revelations {MISSING}]\
+[Assassin's Creed III](https://games-database.com/4lt)\
+[Assassin's Creed III: Remastered](https://games-database.com/bN2)\
+[Assassin's Creed IV: Black Flag](https://games-database.com/48w)\
+[Assassin's Creed: Rogue](https://games-database.com/6p8)\
+[Assassin's Creed: Unity](https://games-database.com/6pa)\
+[Assassin's Creed: Syndicate](https://games-database.com/72S)\
+[Assassin's Creed: Origins](https://games-database.com/6tv)\
+[Assassin's Creed: Odyssey](https://games-database.com/4lu)\
+[Assassin's Creed: Valhalla](https://games-database.com/7p3)\
+
 # Anime
 #### Naruto
 [Naruto Ninja Storm 4](https://games-database.com/4ry)\
