@@ -47,7 +47,7 @@
 
 # Software
 [AutoDesk AutoCAD](https://games-database.com/4c6)\
-[Adobe Photoshop](https://mega.nz/file/aJ1UBBIS#HSd6sDrRtd6iYnc6Pkas3iV6R96ZHFr-vpug6eXKdRY)\
+[Adobe Photoshop](https://filecr.com/windows/photoshop-adobe/)\
 [Adobe Premiere](https://filecr.com/windows/adobe-premiere/)\
 [RPCS3 Emulator {Serve per Demon's souls}](https://rpcs3.net/download) 
 
