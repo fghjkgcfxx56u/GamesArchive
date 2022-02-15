@@ -3,6 +3,7 @@
 [The Elder Scrolls V Skyrim](https://games-database.com/4sh)\
 [Control](https://games-database.com/9eg)\
 [Resident Evil 4](https://games-database.com/6q3)\
+[Undertale](https://games-database.com/6s9)\
 [Teardown](https://games-database.com/9dg)
 
 # Assassin's Creed
